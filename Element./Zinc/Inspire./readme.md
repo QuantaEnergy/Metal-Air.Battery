@@ -1,1 +1,2 @@
 - [Zinc-Air Batteries 🤯 CHEAP, CLEAN, ENERGY-DENSE! Dr. Simon Clark (SINTEF)](https://youtu.be/hOF4YSAFiow)
+- [Make a Zinc Air Battery](https://youtu.be/OcGWbt1mcrc)
